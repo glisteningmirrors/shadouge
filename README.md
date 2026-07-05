@@ -1,3 +1,1 @@
-<p align=center><img src="https://media1.tenor.com/m/x-6F8k8vgwIAAAAC/fearless-year-of-shadow-year-of-shadow.gif"/>
-<p align=center>"Even if you believe everyone in the world will be against you, know that I'll always remain by your side"
-
+<br><p align=center><img src="https://64.media.tumblr.com/bd1b5585fa056582bb877f3fbc165990/5112cb9f8ef8ffa2-74/s540x810/7156bf8789b8baa4dca2eb95b5195986c309b18a.pnj"/>
